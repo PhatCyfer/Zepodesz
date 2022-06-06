@@ -1,2 +1,0 @@
-# Zepodesz
-PhatCyfer
